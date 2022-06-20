@@ -2,7 +2,8 @@
 
 I'm Avery.  
 First-Generation College-Student.  
-Second-Generation Immigrant.   
+Second-Generation Immigrant.  
+Hmong-American.  
 Aspiring Ghost Hunter 👻
 
 <!--
