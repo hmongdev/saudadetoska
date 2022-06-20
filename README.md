@@ -1,8 +1,8 @@
 ### Hello | Nyob Zoo | Hola 👋
 
-I'm Avery. 
-First-Generation College-Student. 
-Second-Generation Immigrant.  
+I'm Avery.  
+First-Generation College-Student.  
+Second-Generation Immigrant.   
 Aspiring Ghost Hunter 👻
 
 <!--
